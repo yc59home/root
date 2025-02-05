@@ -1,4 +1,4 @@
-![logo](https://imgur.com/a/T5p7xgO)
+![logo](https://imgur.com/zhVdCG9)
 
 ### 양정고등학교 59회
 
